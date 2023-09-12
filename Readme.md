@@ -1,3 +1,6 @@
-joel torres arias
-Laura Soto
+
 Kenia Vilcapaza
+- joel torres arias
+- lissett leal
+- Laura Soto
+- Leslie Zarate
