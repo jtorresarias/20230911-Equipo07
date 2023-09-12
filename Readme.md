@@ -5,3 +5,6 @@
 - Pamela Morales 
 - Kenia Vilcapaza
 
+Pamela Morales
+Vivo en Mexico
+:grinning:
